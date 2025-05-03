@@ -14,4 +14,4 @@
 
 📬 **Let’s connect:**  
 📧 Email: sorasakj@uci.edu  
-🔗 LinkedIn: [linkedin.com/in/sorasakjoshi] (https://www.linkedin.com/in/sorasakjoshi/)
+🔗 LinkedIn: https://www.linkedin.com/in/sorasakjoshi/
